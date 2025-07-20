@@ -7,14 +7,14 @@ https://cookieandkate.com/healthy-granola-recipe/
 ### Dry
 
 - 4 cups oats
-- 1 ½ cups nuts/seeds
+- 1.5 cups nuts/seeds
 - 1 tsp salt
-- ½ tsp cinnamon
+- .5 tsp cinnamon
 
 ### Wet
 
-- ½ cup olive/coconut oil
-- ½ cup honey
+- .5 cup olive/coconut oil
+- .5 cup honey
 - 1 tsp vanilla extract
 
 ### Fixins

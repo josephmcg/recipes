@@ -1,0 +1,19 @@
+# Tzatziki
+
+https://cookieandkate.com/how-to-make-tzatziki/
+
+## Ingredients
+
+- 2 cups grated cucumber
+- 1 ½ cups plain Greek yogurt
+- 2 tbsp extra-virgin olive oil
+- 2 tbsp chopped fresh mint and/or dill
+- 1 tbsp lemon juice
+- 1 medium clove garlic, pressed or minced
+- ½ tsp fine sea salt
+
+## Instructions
+
+- Squeeze moisture out of grated cucumber
+- Add yogurt, olive oil, herbs, lemon juice, garlic, and salt. Blend, let rest for 5 minutes
+- Chill, or serve immediately
